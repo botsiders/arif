@@ -1,0 +1,2 @@
+# arif
+Kick all member
